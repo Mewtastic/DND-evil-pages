@@ -1,0 +1,5 @@
+---
+title: "Entry Three: Eterenal Life"
+draft: "false"
+---
+In a mere seventeen years I've accomplished my goal! Usually it takes quite a bit of time to infiltrate another universe, but I've found one greatly weakened by an evil god whose idiocy is only outmatched by her reckless power. I can't thank her enough really! I've hidden in a prehistoric period of time in that universe. The foolish evil goddess uses minions of nightmare and shadow, they were trivial to take control of and feed her poisoned information. For now I've merely advised her to create a diversion to keep her enemies distracted. During my time here in this realm I've discovered something called a Lich. Although it promises to solve my illness, I can't help but feel its knowledge is woefully incomplete and to test it on myself would present a terrible risk. To solve this I'll use the diversion I suggested earlier as an opportunity to test this on some lower species.
